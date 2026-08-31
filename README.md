@@ -1,0 +1,1 @@
+# has-crafts-privacy-policy
